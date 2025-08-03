@@ -56,6 +56,7 @@ Just like **Day 1**, today we all gathered again at the **Auditorium Hall**. The
 
 ## 🏆 Scholarship Session
 One of the key highlights of the day was an informative session by members of a **Scholarship Community**. They introduced us to the **Satyam Scholarship Scheme**, which is a great opportunity for students from financially weaker backgrounds. All the students listened attentively, showing great interest and discipline.
+<img width="333" height="151" alt="image" src="https://github.com/user-attachments/assets/5dc4b80d-2d7d-446b-ab71-eb097e9ef60b" />
 
 ## 🏫 About GNDEC
 I would like to mention something special about **GNDEC** – the environment here is truly motivational. It encourages us to build a successful future. The **teachers are extremely helpful, kind-hearted**, and maintain strong connections with the students, which creates a positive learning atmosphere.
